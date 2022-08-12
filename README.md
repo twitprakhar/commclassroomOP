@@ -6,4 +6,4 @@
 - More power to kunal. love the work which your are doing for the community.
 
 
-- Prakhar Gupta finds the Community Classroom initiative really great!
+- Pradeep Kumar finds the Community Classroom initiative really great!
